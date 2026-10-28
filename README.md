@@ -15,7 +15,7 @@ Creative and detail-oriented Interactive Media Designer with a strong passion fo
 ## 🎓 Education
 
 - **College Diploma – Interactive Media Design**  
-  *2023 – 2025*
+  *JAN2024 – AUG2025*
   
 ---
 
